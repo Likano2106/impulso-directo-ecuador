@@ -1,1 +1,0 @@
-# impulso-directo-ecuador
